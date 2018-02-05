@@ -1,1 +1,1 @@
-# hraniedno
+# hraniedno hrani nqkakyv proekt
